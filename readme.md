@@ -5,6 +5,6 @@ You say hello and I say goodbye...
 
 It was a cold and wet December day when I touched the ground in JFK...
 
-ne znan dalje
+ne znan HAHAHAHHAHAHAHHAHAHAH dalje
 
 Neznan ni ja
